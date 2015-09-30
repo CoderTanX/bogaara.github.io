@@ -1,1 +1,1 @@
-www.bogaara.com
+bogaara.com
